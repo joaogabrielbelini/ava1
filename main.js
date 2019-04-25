@@ -1,0 +1,5 @@
+Abençoarei os que o abençoarem
+e amaldiçoarei os que o amaldiçoarem;
+e por meio de você
+todos os povos da terra
+serão aben­çoados".
